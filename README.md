@@ -25,7 +25,7 @@ I tend to make crude jokes, but I try to tone it down as much as I can. Please f
 I'd prefer any doubles of mine int with caution and dniuid. I'm selective with who I let in, and will block freely.
  <br>
  <br>
- People above 16 iwec and above 18 dni (unless I already know you)
+ People above 16 iwec and above 18 dniuid (unless I already know you)
  <br>
  <br>
 Usually I prefer you don't approach me unless I approach you first, unless you're a close friend of mine/in a party with me. But you can still approach me to cud.
