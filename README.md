@@ -50,4 +50,5 @@ When it comes to subkit, I'd prefer subkit shippers don't interact, unless its p
  <br>
  I block freely.
 <br>
+ I'm a kinshifter, my kintypes are on my [kinlist](https://fluffle.cc/kinlisting), usually my kins are tagged with "me" in my ponies and I wear the pony of whoever im shifted to
  Read my other links for more info!
