@@ -1,11 +1,11 @@
  <p align= center>
-  <img src="https://files.catbox.moe/4449mo.gif" width= 270>
+  <img src="https://files.catbox.moe/cmfpd6.png" width= 270>
    <br>
-   <img src= "https://files.catbox.moe/6jd9xk.png"width= 370>
+   <img src= "https://files.catbox.moe/372gri.png"width= 370>
   </p>
   
 <p align= center>
-$\color{#47717d}{{Anyone⠀ coming⠀from⠀ponytown⠀please⠀read⠀this!}}$
+$\color{#172d73}{{Anyone⠀ coming⠀from⠀ponytown⠀please⠀read⠀this!}}$
 <br>
 <br>
 Always feel free to c+h! C+H is highly encouraged, unless I have dniuparty or dni in my name etc. 
